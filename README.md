@@ -1,0 +1,1 @@
+# 019_Bariq-Adyatma_UTS_AI
